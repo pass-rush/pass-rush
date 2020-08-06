@@ -14,3 +14,4 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ... He/Him/Manimal  
 - ⚡ Fun fact: ... I'm your hero's hero 
 
+/play rimshot
