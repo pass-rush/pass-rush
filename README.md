@@ -13,5 +13,3 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ... howtobeawesome@likeme.com
 - 😄 Pronouns: ... He/Him/Manimal  
 - ⚡ Fun fact: ... I'm your hero's hero 
-
-/play rimshot
