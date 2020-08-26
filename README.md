@@ -3,7 +3,7 @@
 So you made it here. Congratulations. Your life just got a whole lot better as a result.
 
 
-Here are some ideas to get you started.:  👈🏿  &nbsp; I'm so gansta I left 'as is'.
+###Here are some ideas to get you started.:  👈🏿  &nbsp; I'm so gansta I left 'as is'.
 
 - 🔭 &nbsp; I’m currently working on. . . trying to keep my awesomeness contained  
 - 🌱 &nbsp; I’m currently learning. . .  everytyhing 
