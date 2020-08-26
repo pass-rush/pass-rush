@@ -3,7 +3,7 @@
 You want a piece of me?
 
 
-Here are some ideas to get you started.:  👈🏿   I'm so gansta I left 'as is'.
+Here are some ideas to get you started.:  👈🏿  &nbsp; I'm so gansta I left 'as is'.
 
 - 🔭 I’m currently working on ... staying awesome 
 - 🌱 I’m currently learning ... everytyhing 
