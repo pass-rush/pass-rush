@@ -1,6 +1,6 @@
-### Hi there 👋
+### Hi there 👋🏿
 
-You want a piece of me?
+So you made it here. Congratulations, your life just got a whole lot better.
 
 
 Here are some ideas to get you started.:  👈🏿  &nbsp; I'm so gansta I left 'as is'.
