@@ -1,4 +1,4 @@
-### Hi there 👋🏿
+### 👋🏿 Hi there 
 
 So you made it here. Congratulations. Your life just got a whole lot better as a result.
 
